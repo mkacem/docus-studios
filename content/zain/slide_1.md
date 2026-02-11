@@ -1,2 +1,0 @@
-# Slide 1
-Omniflow © 2024 - CONTROL TOWER USER GUIDE v1.3
